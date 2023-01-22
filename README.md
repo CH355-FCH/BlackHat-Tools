@@ -11,3 +11,5 @@
 1.BAT Virus Maker: https://drive.proton.me/urls/WZE6XBJC28#Pd4HNeqlBqQm
 <BR>
 2.888 AndroidRAT: https://drive.proton.me/urls/T3S0H2R510#34sKZI8hAlzz
+<br>
+3.Verci Spy System RAT+Ransomware Cracked : https://drive.proton.me/urls/14QNH68C6R#jruYKwR2WLxe
